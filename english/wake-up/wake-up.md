@@ -14,7 +14,7 @@ before you were on the island and where did the marshmallows come
 
 from? Since you cannot remember any of these things then it begins
 
-to dawn on you that you really are still having a dream.
+to dawn on you that you really are dreaming now.
 
 All senses at this moment seem so real!
 
